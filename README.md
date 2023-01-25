@@ -4,4 +4,6 @@
 
 #RONY INSIDE CODE ALL RESERVED
 
+CALL: +55 21 97007-9469
+
 # https://ronyagentspp.github.io/bitcoin13/
